@@ -1,1 +1,0 @@
-# Chernykh_qa
